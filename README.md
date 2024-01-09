@@ -12,7 +12,7 @@ CLEAN FRESHLY CODED DRAINER, NO BACKDOOR
 
 **NO BACKDOOR**
 
-**To Buy The Full Clean Scripts Or For Any Other Types Of Scripts & Development Orders Message us** 
+**To Buy The Full Clean Scripts Or For Any Other Types Of Scripts & Development Orders Message** 
 
 
 
